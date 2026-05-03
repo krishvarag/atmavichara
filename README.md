@@ -1,0 +1,2 @@
+# atmavichara
+Advaita Vedanta collection
