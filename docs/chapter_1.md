@@ -1,4 +1,4 @@
-# Atma Vichara
+# Vedanta
 ## Conditioning of Mind: Psychology vs Vedānta
 * Overview <br>
 Key distinctions and connections between modern psychology and Advaita Vedānta regarding awareness, conditioning, and the nature of the mind.
